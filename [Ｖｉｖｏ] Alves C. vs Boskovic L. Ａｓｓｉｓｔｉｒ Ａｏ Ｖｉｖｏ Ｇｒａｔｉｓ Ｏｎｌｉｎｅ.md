@@ -1,0 +1,50 @@
+#[Ｖｉｖｏ] Alves C. vs Boskovic L. Ａｓｓｉｓｔｉｒ Ａｏ Ｖｉｖｏ Ｇｒａｔｉｓ Ｏｎｌｉｎｅ  
+  
+  
+[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/PXLnHfN.php)  
+  
+Demorou quase quatro décadas, uma falha de ignição espetacular em live-action e dezenas de outras adaptações fracassadas de Videogames para aprender, mas nada disso foi desperdiçado: Illumination e o filme  da Nintendo finalmente dão ao personagem mais icônico dos jogos a aventura na tela que ele sempre mereceu.
+Beneficiando-se imensamente da criatividade sem fim dos inúmeros desenvolvedores de jogos, artistas e músicos que fizeram da franquia  um rolo compressor da cultura pop,  lança foguetes junto com o ímpeto de uma bala explodindo de um canhão.
+O reino do cogumelo é realizado com detalhes e reverência incríveis, e nem mesmo um enredo de papel -thin pode impedir que a magia dos jogos se perca ao longo do caminho.
+A configuração de  é muito simples: enquanto em um trabalho de encanamento debaixo do Brooklyn, os irmãos  (Chris Pratt) e Luigi (Charlie Day) são sugados para o Reino dos cogumelos através de um tubo de urdidura e se envolvem nos planos do Rei  (Jack Black) para roubar a Super estrela, o que lhe daria o poder de assumir o domínio cheio de sapos da Princesa Peach (Anya Taylor-Joy).
+A jornada de  Cheep-Cheep-out-of-water atinge todas as batidas previsíveis da narrativa "warrior from another world", mas décadas de jogos  garantem os co-diretores Aaron Horvath e Michael Jelenic (Teen Titans Go!) ter um poço infinito de cenários selvagens e iconografia para puxar para encenar momentos de ação inventivos, especialmente quando  conseguiu entender como voar corretamente com um terno Tanooki.
+ quase sempre tem uma solução inventiva no mundo para qualquer problema que apareça e que dependa de algo facilmente reconhecível nos Jogos, mas nunca retém a explicação de como essa coisa funciona (mesmo que o porquê seja legitimamente ignorado.) Quer se trate de recriar o caminho do mundo 1-1 enquanto  e Luigi parkour atravessam o Brooklyn ou os fãs de risos preventivos verão  ingerir um cogumelo azul em vez de um vermelho durante uma luta,  gerencia um grande equilíbrio de acessibilidade para o público em geral e piadas internas para aqueles de nós que entraram e saíram da série ao longo dos anos.
+O uso intenso de referências por  não é uma coisa boa por si só, mas sua inclusão parece justificada porque são usadas de maneiras que parecem relevantes e orgânicas para o mundo.
+Na pior das hipóteses, sequências como The Rainbow Road race podem parecer um pouco tachadas quando não defendem totalmente o caso de estar lá com qualquer tipo de razão lógica (ser capaz de vender brinquedos de Kart  com a marca de filmes não conta), mas então a lógica não é uma moeda que alguém espera que  negocie de qualquer maneira.
+O filme confia que seu público não vai se importar muito com o motivo pelo qual as plataformas flutuam, ou por que há blocos com pontos de interrogação em todo o lugar cheios de power-ups que transformam pessoas em gatos e lança-chamas.
+Uma vez que você já tenha comprado coisas assim, dar 10 minutos do filme até encenar uma corrida de Kart  de grande orçamento para que uma caminhada de A A B pareça um pouco mais animada é uma pílula mais fácil de engolir.
+A vibração visual de  estabelece um nível muito elevado para as outras adaptações de videojogos animados que certamente se seguirão, seja a da Nintendo ou de outro estúdio.
+O cerco de  contra o gelo ao Reino dos Pinguins, as amplas vistas de fungos do Reino dos cogumelos e a vegetação exuberante do Reino da selva dos Kongs São paisagens de sonho super saturadas que se fundem em um mundo agitado implorando para ser mais explorado.
+A partitura bombástica de Brian Tyler cuida do lado musical desta equação, expressando perfeitamente a grandeza e o capricho das faixas dos jogos em cada curva e minerando as orquestrações originais de Koji Kondo com grande efeito.
+A série  tem algumas das pistas musicais mais reconhecidas da história dos jogos, e Tyler implanta muitas delas ao longo da ação exatamente onde você espera que elas caiam.
+O uso principalmente excelente do filme de seu material de origem contrasta com alguns tropos de animação de blockbuster mal aconselhados que ocasionalmente podem ser grating.
+Como alguém roubando uma estrela de você na festa , a pontuação fantástica Faz com que as faixas pop que são calçadas pareçam preguiçosas em comparação.
+Um pouco "No Sleep' til Brooklyn "como  e Luigi parkour seu caminho através do bairro nunca fez mal a ninguém, mas no momento em que  e Peach estão sendo karted em torno do Reino da selva para A-Ha" Take On Me", você pode encontrar as gotas de agulha sendo um pouco demais de um snap de volta à realidade.
+Isso vale em dobro para os escritores serem incapazes de resistir ao desejo de que o próprio Donkey Kong diga "É como Donkey Kong."Momentos como este-bem como o uso frequente de câmera lenta para destacar piadas - são um pouco fofos demais, e insinuam a facilidade com que  poderia ter entrado no território do "filme de animação genérico" se tivesse dado lugar a mais dessas facadas baixas para garantir que o tio Jack tivesse seu "eu entendi essa referência!"momento também.
+O discurso interminável em torno da dublagem em , como esperado, parece totalmente fora de contato com o que o elenco realmente acabou entregando: performances entusiasmadas que trazem vida aos personagens, sem nenhum ELO realmente fraco entre eles.
+Chris Pratt e Charlie Day's  certamente não levarão para casa nenhum elogio do bom povo do Brooklyn por seus sotaques de Nova York, mas cada um incorpora com facilidade o heroísmo e a bravura de seu personagem (embora isso possa ser difícil para Luigi).
+Definitivamente, houve um achatamento das qualidades mais caricaturais das vozes dos personagens principais no jogo-algo que o filme aborda imediatamente - mas a escolha de fundamentar conversas em uma entrega mais natural se equilibra bem com as armadilhas fantásticas do Reino do cogumelo.
+Mais do que isso, ainda deixa espaço para personagens coadjuvantes como Toad (Keegan-Michael Key), Kamek (Kevin Michael Richardson) e Cranky Kong (Fred Armisen) serem um pouco mais malucos e dar mais alcance ao conjunto.
+E mesmo que seja um personagem de uma piada sem impacto na trama, o niilismo Alegre de Lumalee (Juliet Jelenic, filha do co-diretor Michael) dá grandes risadas todas as vezes, graças principalmente à emoção infalível do jovem dublador, que borbulha por trás de cada observação negra que ela faz enquanto está presa com Luigi.
+Jack  se sente como o desempenho vocal de destaque, já que a marca registrada do ator se encaixa bem com o senso de identidade do Rei Koopa.
+A sede de poder de  não é explorada de forma séria: ele quer assumir o Reino dos cogumelos porque ele é um cara mau e é isso que os bandidos fazem - aparentemente ele perdeu o ponto daquela sessão de grupo em Wreck-It Ralph.
+Mas  é assustador, impetuoso e desesperado por atenção às vezes, e essas frequentes mudanças de humor emprestam imprevisibilidade às suas cenas.
+ de Jables até executa uma balada em homenagem a Peach, que parece um Lado B D tenaz e seguro para o trabalho, um descritor que não consigo imaginar que irá perturbar os fãs das costeletas musicais de Black.
+Filmes De Acção! Aqui estão as opções para baixar ou assistir  streaming do filme completo on-line gratuitamente no 123movies & Reddit, incluindo onde assistir a última parcela da franquia  em casa.
+ 2023 disponível para transmissão? Está assistindo  no Peacock, HBO Max, Netflix ou Disney Plus? Sim, encontramos uma opção/serviço de streaming autêntico.
+Ao longo de três filmes até agora, vimos as consequências do que pode acontecer quando um dos maiores assassinos do mundo sai da reforma.
+, também conhecido como Baba Yaga ou O Bicho-Papão, é um homem com quem não se deve brincar em hipótese alguma, mas os criminosos parecem nunca aprender a lição.
+Esta série incrivelmente popular começou com John (Keanu Reeves) em busca de vingança contra os homens que invadiram sua casa, roubaram seu carro e, o pior de tudo, mataram seu filhote, Daisy.
+A partir daqui, complicações intermináveis impediram John de voltar à aposentadoria, pois ele viajou ao redor do mundo e fugiu.
+Agora, em  (2023), vamos testemunhar o maior desafio do assassino titular enquanto ele busca vingança na mesa alta.
+Um conselho de senhores do crime altamente respeitados (e temidos), eles dirigem as organizações mais poderosas e notórias do submundo do crime; portanto, é desnecessário dizer que John tem uma tarefa punitiva pela frente.
+A sequência de Chad Stahelski supera de forma impressionante o sucesso crítico de seus antecessores, com as críticas positivas de  sendo as melhores da franquia.
+O filme já possui uma pontuação certificada de 93% dos críticos no Rotten Tomatoes, que é maior do que as pontuações de 89% das duas sequências e a classificação original de 86%.
+ também é esperado para ser o maior sucesso de bilheteria da franquia ainda, o que significa que é apto a desfrutar de uma longa janela teatral exclusiva antes de lançar em streaming.
+Se você está animado para ver onde esta série de ação altamente antecipada vai a seguir, temos boas notícias para você, porque a última parcela está chegando a 169 minutos.
+Também será lançado incrivelmente em breve! Continue Lendo Abaixo para descobrir quando e onde você pode ver .
+Aqui está o seu guia sobre como você pode assistir ao aguardado filme de ação  streaming, a última parcela da franquia .
+A partir de agora, a única maneira de assistir  é ir a um teatro quando for lançado.
+Você pode encontrar uma exibição local no Fandango.
+Caso contrário, você só terá que esperar que ele se torne disponível para alugar ou comprar em plataformas digitais como Vudu, Paramount, Apple e YouTube, ou se torne disponível para transmitir no Peacock.
+Após seu lançamento nos cinemas, o filme estará disponível para transmissão no Prime Video.
